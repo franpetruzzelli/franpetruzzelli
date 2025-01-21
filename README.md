@@ -16,7 +16,7 @@
 - Passionate Full Stack Web Developer
 - Learning through a Full Stack Web Development Bootcamp
 - Currently learning Web Development by Self
-- Open to opportunities! 📧 [Email me](mailto:franciscopetruzzelli@gmail.com) | 📄 [My CV](https://drive.google.com/file/d/1DQnlyZ-paOohjhyyj13qtsxYk1RCYASa/view?usp=sharing) 
+- Open to opportunities! 📧 [Email me](mailto:franciscopetruzzelli@gmail.com) | 📄 [My CV](https://drive.google.com/file/d/1SCnWMAvR6UKoXcW7EF3z99WlVKyUMKnl/view?usp=drivesdk) 
 
 
 <br><br>
